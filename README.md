@@ -65,7 +65,7 @@
 </details>
 
 
-<p align="center">
+<p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
   </a>
