@@ -1,6 +1,6 @@
 <div id="header" align="center">
   
-![](https://komarev.com/ghpvc/?username=boybabe&color=d6ccc0&label=𝓵ove+birds⠀&style=plastic&base=2900)
+![](https://komarev.com/ghpvc/?username=boybabe&color=d6ccc0&label=𝓵ove+birds⠀&style=plastic&base=2600)
 
 </p>
 
@@ -28,7 +28,7 @@
     <b>　　𝓫yf. </b>
   </summary>
 
- ⠀⠀SUPER childlish
+ ⠀⠀WILL spam u if u dont respond
 
 ⠀⠀ i won't joke as much if we're not close srry
 
@@ -47,7 +47,7 @@
 
  ⠀⠀ex partners
 
-⠀⠀ no nonsense ppl
+⠀⠀ no-nonsense ppl
 
 </details>
 
@@ -56,17 +56,11 @@
     <b>　　𝓶ore. </b>
   </summary>
 
-⠀⠀ we have really bad memory, sorry if we forget u or something
+⠀⠀ i am super kind i swear, u can vent to me always BUT ASK FIRST
 
-⠀⠀ communicate with us if ANY of us make u uncomfortable, please!
+ ⠀⠀im a christian ok,,,,
 
- ⠀⠀im a kind person in general, don't be afraid to come up n interact w/ me
-
- ⠀⠀i act mean as a joke, just tell me if you dont like that! 
-
- ⠀⠀ask any questions , if u have any lol. 
-
-𓈒 ⠀⠀if u ever need to contact us all our socials are realdustsans ok thanks
+ ⠀⠀discord is "punziebell."
 
 </details>
 
