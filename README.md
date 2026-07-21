@@ -50,7 +50,7 @@
 
  ⠀⠀ex partners
 
- ⠀⠀no-nonsense ppl
+ ⠀⠀ANTI-ARGENTINIANS DNI DNI DNIIIII I HATE YOU
 
 </details>
 
