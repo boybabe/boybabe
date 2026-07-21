@@ -67,6 +67,37 @@
 
 </details>
 
+  <details>
+  <summary>
+    <b>　　𝓫yf. </b>
+  </summary>
+
+ ⠀⠀im very intense and affectionate
+
+⠀⠀ i make rude jokes and get sad randomly EXCUSE ME
+
+ ⠀⠀im very loud I ALWAYS SPEAK IN ALL CAPS 
+
+ ⠀⠀formerly "mekkicharms" and "sugarplayoh"
+ 
+
+</details>
+
+ <details>
+ <summary>
+  <b>　　𝓯andoms. </b>
+ </summary>
+
+⠀⠀phighting is the GOAT int phighters. prophight iwec...ok...idm...
+
+⠀⠀ regretevator too ig i just like pest and dr retro
+
+⠀⠀the niche booktok fakeland corner of the internet if they even are in pt
+
+⠀⠀heated rivalry🤤🤤🤤🤤
+
+
+</details>
 
 <p align="left">
   
