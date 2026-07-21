@@ -67,22 +67,6 @@
 
 </details>
 
-  <details>
-  <summary>
-    <b>　　𝓫yf. </b>
-  </summary>
-
- ⠀⠀im very intense and affectionate
-
-⠀⠀ i make rude jokes and get sad randomly EXCUSE ME
-
- ⠀⠀im very loud I ALWAYS SPEAK IN ALL CAPS 
-
- ⠀⠀formerly "mekkicharms" and "sugarplayoh"
- 
-
-</details>
-
  <details>
  <summary>
   <b>　　𝓯andoms. </b>
