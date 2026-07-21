@@ -19,7 +19,7 @@
 
  ⠀im always with friends, interact freely unless stated otherwise in my name!
 
- ⠀im always at the roblox zone
+ ⠀only on the roblox zone unless im fooling around the map
 
 </details>
 
@@ -47,7 +47,7 @@
 
  ⠀⠀ex partners
 
-⠀⠀ no-nonsense ppl
+ ⠀⠀no-nonsense ppl
 
 </details>
 
@@ -66,8 +66,8 @@
 
 
 <p align="left">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=d6ccc0&interchange=false&profanity=false&hide_remaster=false&bar_color=d6ccc0&bar_color_cover=true">
+  [<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&cover_image=true](https://spotify-github-profile.kittinanx.com/api/view?uid=31w3754g4ke6jgrou7skhnxon2qq&cover_image=true&theme=default)](https://open.spotify.com/user/31w3754g4ke6jgrou7skhnxon2qq)&theme=natemoo-re&show_offline=true&background_color=d6ccc0&interchange=false&profanity=false&hide_remaster=false&bar_color=d6ccc0&bar_color_cover=true">
   </a>
 </p>
 
