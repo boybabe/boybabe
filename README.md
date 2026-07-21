@@ -19,7 +19,7 @@
 
  ⠀im always with friends, interact freely unless stated otherwise in my name!
 
- ⠀only on the roblox zone unless im fooling around the map
+ ⠀im always online at late evening or past midnight (AST UTC-3)
 
 </details>
 
@@ -28,9 +28,9 @@
     <b>　　𝓫yf. </b>
   </summary>
 
- ⠀⠀WILL spam u if u dont respond
+ ⠀⠀im very intense and affectionate
 
-⠀⠀ i won't joke as much if we're not close srry
+⠀⠀ i make rude jokes and get sad randomly EXCUSE ME
 
  ⠀⠀im very loud I ALWAYS SPEAK IN ALL CAPS 
 
@@ -61,7 +61,7 @@
 
 ⠀⠀ i am super kind i swear, u can vent to me always BUT ASK FIRST
 
- ⠀⠀im a christian ok,,,,
+ ⠀⠀im a practicing christian ok dni extremists
 
  ⠀⠀discord is "punziebell."
 
