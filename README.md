@@ -8,73 +8,63 @@
 
   <details>
   <summary>
-    <b>　　｡　　𝄞　　info </b>
+    <b>　　𝓫asic. </b>
   </summary>
 
-𓈒 ⠀call us by zombi/axel/murder, any nicknames is fine!
+ ⠀chester, cher, mekki
 
-𓈒 ⠀17 year old , he/they pronouns only
+ ⠀18 y.o., STRICTLY he/him!! 
 
-𓈒 ⠀medically recognized P-DID system , most pages is about host 
+ ⠀not interested in a serious relationship
 
-𓈒 ⠀taken by our lovely partner, hi augustine!!
+ ⠀im always with friends, interact freely unless stated otherwise in my name!
 
-𓈒 ⠀if im on ponytown im prob offtab, so it's best to whisper me. there's a high chance i will respond late
-
-𓈒 ⠀c+h is heavily enc , i love sitting with people!! 99% of the time, im at UT area
-
-𓈒 ⠀we switch between using plural and singular 
+ ⠀im always at the roblox zone
 
 </details>
 
   <details>
   <summary>
-    <b>　　｡　　𝄞　　byi </b>
+    <b>　　𝓫yf. </b>
   </summary>
 
-𓈒 ⠀⠀in recovery , iwc at all times unless friends.
+ ⠀⠀SUPER childlish
 
-𓈒⠀⠀ i block people a lot, just be chill and you'll be fine
+⠀⠀ i won't joke as much if we're not close srry
 
-𓈒⠀⠀ im a quiet person when u first meet me, i promise im talkative!!
-
-𓈒 ⠀⠀im a rlly affectionate person touch is like my love language sorry 
+ ⠀⠀im very loud I ALWAYS SPEAK IN ALL CAPS 
 
 </details>
 
   <details>
   <summary>
-    <b>　　｡　　𝄞　　dni </b>
+    <b>　　𝓭ni. </b>
   </summary>
 
-𓈒 ⠀⠀<a href="https://dni-criteria.carrd.co/"> basic dni</a>
+ ⠀⠀sensitive weirdos
 
-𓈒 ⠀⠀senstive people n stuff like that
+ ⠀⠀yumeshippers, nothing against u all i just get uncomfy
 
-𓈒 ⠀⠀roleplayers + delusional yumeshippers 
+ ⠀⠀ex partners
 
-𓈒 ⠀⠀people i used to be friends with
-
-𓈒⠀⠀ rlly flirty people , it gets to a point
-
-𓈒 ⠀⠀yaoi/yuri fetishizers 
+⠀⠀ no nonsense ppl
 
 </details>
 
   <details>
   <summary>
-    <b>　　｡　　𝄞　　more </b>
+    <b>　　𝓶ore. </b>
   </summary>
 
-𓈒⠀⠀ we have really bad memory, sorry if we forget u or something
+⠀⠀ we have really bad memory, sorry if we forget u or something
 
-𓈒⠀⠀ communicate with us if ANY of us make u uncomfortable, please!
+⠀⠀ communicate with us if ANY of us make u uncomfortable, please!
 
-𓈒 ⠀⠀im a kind person in general, don't be afraid to come up n interact w/ me
+ ⠀⠀im a kind person in general, don't be afraid to come up n interact w/ me
 
-𓈒 ⠀⠀i act mean as a joke, just tell me if you dont like that! 
+ ⠀⠀i act mean as a joke, just tell me if you dont like that! 
 
-𓈒 ⠀⠀ask any questions , if u have any lol. 
+ ⠀⠀ask any questions , if u have any lol. 
 
 𓈒 ⠀⠀if u ever need to contact us all our socials are realdustsans ok thanks
 
