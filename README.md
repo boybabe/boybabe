@@ -4,7 +4,7 @@
 
 </p>
 
-<div align="center"> ㅤ </div>
+<div align="left"> ㅤ </div>
 
   <details>
   <summary>
