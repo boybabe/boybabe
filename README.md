@@ -1,4 +1,4 @@
-<div id="header" align="center">
+<div id="header" align="left">
   
 ![](https://komarev.com/ghpvc/?username=boybabe&color=d6ccc0&label=𝓵ove+birds⠀&style=plastic&base=2600)
 
@@ -64,13 +64,6 @@
 
 </details>
 
-<div align="center"> ㅤ </div>
-
- $\small\color{#FFFFFF}{\textsf{sign}}$ $\small\color{#f1eaff}{\textsf{atabook}}$ $\small\color{#e7dbfd}{\textsf{for}}$ $\small\color{#DDCBF3}{\textsf{chocolate}}$ $\small\color{#CBB7F1}{\textsf{chip}}$ $\small\color{#C1A6F0}{\textsf{cookies}}$  <br>
-
-<p align="center">
-  <a href="https://rentry.co/brainsdust"> rentry</a>⠀⠀⠀⠀<a href="https://rawblood.atabook.org/">新book</a>⠀⠀⠀⠀<a href="https://pronouns.cc/@realdustsans">prns</a>
-</p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&redirect=true">
