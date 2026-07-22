@@ -14,7 +14,7 @@
 
    𝓬her, mitsu ᵒʳ mekki ﹔ 𝓱e him only ﹗
  
-   𝟏𝟖yo.ㅤ۪ㅤistp⁸ʷ⁹ㅤ ࿔ latino european.
+   𝟏𝟖yo.ㅤ۪ㅤistp⁸ʷ⁹ㅤ ࿔latino european.
 
 </details>
 
@@ -32,16 +32,12 @@
 
   <details>
   <summary>
-    <b>　　𝓭ni. </b>
+    <b>ㅤㅤ𔓖︥ㅤㅤׅㅤㅤ𝓭ni.ㅤㅤㅤㅤ</b>
   </summary>
 
- ⠀⠀sensitive weirdos
-
- ⠀⠀yumeshippers, nothing against u all i just get uncomfy
-
- ⠀⠀ex partners
-
- ⠀⠀ANTI-ARGENTINIANS DNI DNI DNIIIII I HATE YOU
+ ⠀⠀࿔𝓫asic dni crit ﹔ 𝓯*lly apologizers 
+ 
+ ⠀⠀𝔂umesㅤ۪ㅤexesㅤׅㅤdramatic⁄⁄sensitiveۦ
 
 </details>
 
