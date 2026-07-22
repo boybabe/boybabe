@@ -21,7 +21,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤㅤㅤㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤㅤㅤㅤㅤ۪ㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
   </summary>
 
 𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all.
@@ -34,7 +34,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤㅤㅤ۪ㅤㅤ𝓭ni.ㅤㅤㅤׅㅤ</b>
+    <b>ㅤㅤㅤㅤㅤㅤ𝓭ni.ㅤㅤㅤׅㅤ</b>
   </summary>
 
  ⠀⠀࿔𝓫asic dni crit ﹔ 𝓯*lly apologizers. 
