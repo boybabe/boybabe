@@ -12,26 +12,22 @@
   </summary>
 
 
- ⠀𝓬her ᵒʳ mekki ﹔ 𝓱e him only ﹗
+   𝓬her, mitsu ᵒʳ mekki ﹔ 𝓱e him only ﹗
  
-  𝟏𝟖yo.ㅤㅤㅤ۪ㅤㅤㅤ
-
- ⠀AST UTC-3
+   𝟏𝟖yo.ㅤ۪ㅤistp⁸ʷ⁹ㅤ ࿔ latino european
 
 </details>
 
   <details>
   <summary>
-    <b>　　𝓫yf. </b>
+    <b>ㅤㅤㅤ۪ㅤㅤㅤ𝖋ㅤㅤ𝓫yfㅤㅤ࣪ㅤㅤ</b>
   </summary>
 
- ⠀⠀im very intense and affectionate
+𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all
 
-⠀⠀ i make rude jokes and get sad randomly EXCUSE ME
+𝓽roll༝ ﹔ lotta nsfw⁄⁄kys jokes ﹗
 
- ⠀⠀im very loud I ALWAYS SPEAK IN ALL CAPS 
-
- ⠀⠀formerly "mekkicharms" and "sugarplayoh"
+𝓮xtremely sarcastic ﹔ i dont use tone tags࿔ 
  
 
 </details>
