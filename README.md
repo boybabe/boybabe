@@ -8,7 +8,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤㅤㅤ࣪ㅤㅤ𝓫asic.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤㅤㅤㅤㅤ𝓫asic.ㅤㅤㅤׅㅤ</b>
   </summary>
 
 
@@ -46,7 +46,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤㅤׁㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤㅤㅤㅤㅤ۪ㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
   </summary>
 
  ⠀⠀𝓲f i ever said something out of place and it affected you pls TELL ME, i will apologize unless it's something stupid.
