@@ -37,7 +37,7 @@
     <b>ㅤㅤㅤㅤㅤㅤ𝓭ni.ㅤㅤㅤׅㅤ</b>
   </summary>
 
- ⠀⠀࿔𝓫asic dni crit ﹔ 𝓯*lly apologizers. 
+ ⠀⠀࿔𝓫asic dni crit ﹔ f*lly apologizers. 
  
  ⠀⠀𝔂umesㅤ۪ㅤexesㅤׅㅤdramatic⁄⁄sensitive pplۦ
 
