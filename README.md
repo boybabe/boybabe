@@ -21,7 +21,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤ۪ㅤㅤㅤ𝖋ㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤㅤ۪ㅤㅤ𝖋ㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
   </summary>
 
 𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all.
