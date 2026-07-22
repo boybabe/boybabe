@@ -53,6 +53,8 @@
 
  ⠀⠀𝓲 think of myself to be highly socialㅤׅㅤ i love meeting new people ﹗ㅤ۪ㅤint freely. 
 
+  ⠀𝓲 sleep aaaaaaaalll day long.ㅤ۪ㅤdon't expect me to be active at early hours.
+
 
 </details>
 
