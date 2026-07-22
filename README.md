@@ -34,7 +34,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤ𔓖︥ㅤㅤㅤ۪ㅤㅤㅤׅㅤㅤ𝓭ni.ㅤㅤ</b>
+    <b>ㅤㅤ𔓖︥ㅤㅤㅤ۪ㅤㅤ𝓭ni.ㅤㅤㅤׅㅤ</b>
   </summary>
 
  ⠀⠀࿔𝓫asic dni crit ﹔ 𝓯*lly apologizers. 
