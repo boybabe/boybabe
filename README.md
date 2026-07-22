@@ -32,42 +32,23 @@
 
   <details>
   <summary>
-    <b>ㅤㅤ𔓖︥ㅤㅤׅㅤㅤ𝓭ni.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤ𔓖︥ㅤㅤㅤ۪ㅤㅤㅤׅㅤㅤ𝓭ni.ㅤㅤ</b>
   </summary>
 
- ⠀⠀࿔𝓫asic dni crit ﹔ 𝓯*lly apologizers 
+ ⠀⠀࿔𝓫asic dni crit ﹔ 𝓯*lly apologizers. 
  
- ⠀⠀𝔂umesㅤ۪ㅤexesㅤׅㅤdramatic⁄⁄sensitiveۦ
+ ⠀⠀𝔂umesㅤ۪ㅤexesㅤׅㅤdramatic⁄⁄sensitive pplۦ
 
 </details>
 
   <details>
   <summary>
-    <b>　　𝓶ore. </b>
+    <b>ㅤㅤㅤঈ𝓈ㅤㅤׁㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
   </summary>
 
-⠀⠀ i am super kind i swear, u can vent to me always BUT ASK FIRST
+ ⠀⠀𝓲f i ever said something out of place and it affected you pls TELL ME, i will apologize unless it's something stupid.
 
- ⠀⠀im a practicing christian ok dni extremists
-
- ⠀⠀discord is "punziebell."
-
-</details>
-
- <details>
- <summary>
-  <b>　　𝓯andoms. </b>
- </summary>
-
-⠀⠀phighting is the GOAT int phighters. prophight iwec...ok...idm...
-
-⠀⠀regretevator(???)
-
-⠀⠀the niche booktok fakeland corner of the internet if they even are in pt
-
-⠀⠀heated rivalry🤤🤤🤤🤤
-
-⠀⠀pjo??? i guess
+ ⠀⠀𝓲'm a very blunt person, i might just compliment or insult u randomly. 
 
 
 </details>
