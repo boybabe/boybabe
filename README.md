@@ -8,26 +8,24 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤㅤㅤ࣪ㅤㅤ𝓫asicㅤㅤ♰ㅤㅤ</b>
+    <b>ㅤㅤㅤㅤㅤ࣪ㅤㅤ𝓫asic.ㅤㅤ♰ㅤㅤ</b>
   </summary>
 
 
    𝓬her, mitsu ᵒʳ mekki ﹔ 𝓱e him only ﹗
  
-   𝟏𝟖yo.ㅤ۪ㅤistp⁸ʷ⁹ㅤ ࿔ latino european
+   𝟏𝟖yo.ㅤ۪ㅤistp⁸ʷ⁹ㅤ ࿔ latino european.
 
 </details>
 
   <details>
   <summary>
-    <b>ㅤㅤㅤ۪ㅤㅤㅤ𝖋ㅤㅤ𝓫yfㅤㅤ࣪ㅤㅤ</b>
+    <b>ㅤㅤㅤ۪ㅤㅤㅤ𝖋ㅤㅤ𝓫yf.ㅤㅤ࣪ㅤㅤ</b>
   </summary>
 
-𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all
+𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all.
 
-𝓽roll༝ ﹔ lotta nsfw⁄⁄kys jokes ﹗
-
-𝓮xtremely sarcastic ﹔ i dont use tone tags࿔ 
+𝓽roll༝ ﹔ lotta nsfw⁄⁄kys jokes ﹗ ࿔i dont use tone tags.
  
 
 </details>
