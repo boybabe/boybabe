@@ -8,7 +8,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤㅤㅤ࣪ㅤㅤ𝓫asic.ㅤㅤ♰ㅤㅤ</b>
+    <b>ㅤㅤㅤㅤㅤ࣪ㅤㅤ𝓫asic.ㅤㅤㅤㅤ</b>
   </summary>
 
 
@@ -21,7 +21,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤ۪ㅤㅤ𝖋ㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤㅤㅤㅤㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
   </summary>
 
 𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all.
@@ -34,7 +34,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤ𔓖︥ㅤㅤㅤ۪ㅤㅤ𝓭ni.ㅤㅤㅤׅㅤ</b>
+    <b>ㅤㅤㅤㅤㅤ۪ㅤㅤ𝓭ni.ㅤㅤㅤׅㅤ</b>
   </summary>
 
  ⠀⠀࿔𝓫asic dni crit ﹔ 𝓯*lly apologizers. 
@@ -46,7 +46,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤঈ𝓈ㅤׁㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤㅤㅤׁㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
   </summary>
 
  ⠀⠀𝓲f i ever said something out of place and it affected you pls TELL ME, i will apologize unless it's something stupid.
