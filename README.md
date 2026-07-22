@@ -21,7 +21,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤ۪ㅤㅤㅤ𝖋ㅤㅤ𝓫yf.ㅤㅤ࣪ㅤㅤ</b>
+    <b>ㅤㅤㅤ۪ㅤㅤㅤ𝖋ㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
   </summary>
 
 𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all.
@@ -46,7 +46,7 @@
 
   <details>
   <summary>
-    <b>ㅤㅤㅤঈ𝓈ㅤㅤׁㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
+    <b>ㅤㅤㅤঈ𝓈ㅤׁㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
   </summary>
 
  ⠀⠀𝓲f i ever said something out of place and it affected you pls TELL ME, i will apologize unless it's something stupid.
