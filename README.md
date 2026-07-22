@@ -8,18 +8,13 @@
 
   <details>
   <summary>
-    <b>　　𝓫asic. </b>
+    <b>ㅤㅤㅤㅤㅤ࣪ㅤㅤ𝓫asicㅤㅤ♰ㅤㅤ</b>
   </summary>
 
- ⠀chester, cher, mekki
+ ⠀𝓬her ᵒʳ mekki ﹔ 𝓱e him only ﹗
+  𝟏𝟖yo.ㅤㅤㅤ۪ㅤㅤㅤ
 
- ⠀18 y.o., STRICTLY he/him!! 
-
- ⠀not interested in a serious relationship
-
- ⠀im always with friends, interact freely unless stated otherwise in my name!
-
- ⠀im always online at late evening or past midnight (AST UTC-3)
+ ⠀AST UTC-3
 
 </details>
 
