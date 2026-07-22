@@ -49,9 +49,9 @@
     <b>ㅤㅤㅤㅤㅤㅤ۪ㅤㅤ𝓷otes.ㅤㅤㅤㅤ</b>
   </summary>
 
- ⠀⠀𝓲f i ever said something out of place and it affected you pls TELL ME, i will apologize unless it's something stupid.
+ ⠀⠀𝓲'm always active in the evening ᵒʳ late at night ﹔ argentinian timezone࿔
 
- ⠀⠀𝓲'm a very blunt person, i might just compliment or insult u randomly. 
+ ⠀⠀𝓲 think of myself to be highly socialㅤׅㅤ i love meeting new people ﹗ㅤ۪ㅤint freely. 
 
 
 </details>
