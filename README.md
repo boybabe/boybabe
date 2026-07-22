@@ -12,9 +12,9 @@
   </summary>
 
 
-   𝓬her, mitsu ᵒʳ mekki ﹔ 𝓱e him only ﹗
+⠀⠀𝓬her, mitsu ᵒʳ mekki ﹔ 𝓱e him only ﹗
  
-   𝟏𝟖yo.ㅤ۪ㅤistp⁸ʷ⁹ㅤ ࿔latino european.
+⠀⠀𝟏𝟖yo.ㅤ۪ㅤistp⁸ʷ⁹ㅤ ࿔latino european.
 
 </details>
 
@@ -24,9 +24,9 @@
     <b>ㅤㅤㅤㅤㅤㅤ۪ㅤㅤ𝓫yf.ㅤㅤㅤㅤ</b>
   </summary>
 
-𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all.
+⠀⠀𝓮nglish is not my first languageㅤ۪ㅤoften dont speak it at all.
 
-𝓽roll༝ ﹔ lotta nsfw⁄⁄kys jokes ﹗ ࿔i dont use tone tags.
+⠀⠀𝓽roll༝ ﹔ lotta nsfw⁄⁄kys jokes ﹗ ࿔i dont use tone tags.
  
 
 </details>
